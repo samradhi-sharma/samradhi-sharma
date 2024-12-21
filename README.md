@@ -13,3 +13,6 @@
 
 ⚡ Fun fact: When I’m not coding, you’ll find me brainstorming creative ideas, exploring new tech tools, or binge-watching sci-fi movies!
 
+![samradhi-sharma](https://github.com/user-attachments/assets/907e69aa-3c9c-4164-941d-146594d25df7)
+
+
